@@ -7,6 +7,11 @@ Meu nome é Rômulo Wislei
 - Sou menor de idade
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Você entrar em contato comigo 📫
+### Você pode entrar em contato comigo 📫
 
 romulo.queiroz@escola.pr.gov.br
+ 
+@Rolamo303
+
+
+![](https://media.tenor.com/hrstDWGqx_0AAAAC/ashita-no-joe-joe-yabuki.gif)
